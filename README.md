@@ -17,5 +17,5 @@
 ## Clip 6
 > https://youtu.be/nE5o3zZ58oE
 
-## Clip 6
+## Clip 7
 > https://youtu.be/oX9DzaOvXOg
