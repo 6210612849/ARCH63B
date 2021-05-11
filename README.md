@@ -21,7 +21,7 @@
 > https://youtu.be/oX9DzaOvXOg
 > 
 ## Clip 8
-
+> https://youtu.be/TBpeyMTg_Xo
 
 ## Clip 9
-https://www.youtube.com/watch?v=TiqmoR0mXgM
+> https://www.youtube.com/watch?v=TiqmoR0mXgM
