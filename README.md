@@ -19,3 +19,9 @@
 
 ## Clip 7
 > https://youtu.be/oX9DzaOvXOg
+> 
+## Clip 8
+
+
+## Clip 9
+https://www.youtube.com/watch?v=TiqmoR0mXgM
